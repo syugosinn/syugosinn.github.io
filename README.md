@@ -1,0 +1,2 @@
+# syugosinn.github.io
+おきば
